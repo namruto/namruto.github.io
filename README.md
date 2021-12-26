@@ -1,0 +1,1 @@
+# namruto.github.io
